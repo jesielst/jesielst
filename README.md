@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @jesielst
+- 👀 I’m interested in Data Analysis and decision making
+- 🌱 I’m currently learning Data Analysis
+- 💞️ I’m looking to collaborate on innovative solutions for old and new questions
+- 📫 Reach me on Linked in at https://www.linkedin.com/in/jesielchagas/
+- 😄 Pronouns: he/his/him
+- ⚡ Fun fact: I'm about 35 and changing carrear right now for something that has called me a long ago.
