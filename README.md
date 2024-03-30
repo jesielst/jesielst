@@ -1,6 +1,7 @@
 - 👋 Hi, I’m @jesielst
-- I'm Brazilian 
+- 🌍 I'm Brazilian 
 - 👀 I’m interested in Data Analysis and decision making
+- 👨‍🎓 I'm graduated in Business and post-graduate in Project Management and specialist in International Business (Comex)
 - 🌱 I’m currently learning Data Analysis
 - 💞️ I’m looking to collaborate on innovative solutions for old and new questions
 - 📫 Reach me on Linked in at https://www.linkedin.com/in/jesielchagas/
