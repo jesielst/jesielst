@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @jesielst
+- I'm Brazilian 
 - 👀 I’m interested in Data Analysis and decision making
 - 🌱 I’m currently learning Data Analysis
 - 💞️ I’m looking to collaborate on innovative solutions for old and new questions
